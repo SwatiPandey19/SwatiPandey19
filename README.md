@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Swati Pandey.
+- 👀 I’m interested in electric vehicles and DC DC Convertere 
+- 🌱 I’m currently pursuing M.Tech from VIT Vellore. I have opted for Electronic and Power Drives Stream.
+- 💞️ I’m looking to explore various opportunities related to my area of interest.
+- 📫 Contact me at swatipandeyvit@gmail.com
